@@ -1,0 +1,6 @@
+- 400 ml de leite
+- 1 colher de sopa de maizena
+- 1 caixa de leite condensado
+- 1 caixa de creme de leite
+- 2 pacotinhos de biscoito maizena
+- 1/2 chícara de chá de leite
